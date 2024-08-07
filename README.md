@@ -10,11 +10,11 @@
 
 
 
-➤ ►🌍📺📱👉 Deadpool & Wolverine (2024) Full Mo𝚟ie
+[➤ ►🌍📺📱👉 Deadpool & Wolverine (2024) Full Mo𝚟ie](https://4khdmovies.club/en/movie/533535/deadpool-wolverine)
 
 
 
-➤ ►🌍📺📱👉 Deadpool & Wolverine (2024) Full Mo𝚟ie
+[➤ ►🌍📺📱👉 Deadpool & Wolverine (2024) Full Mo𝚟ie](https://4khdmovies.club/en/movie/533535/deadpool-wolverine)
 
 
 
